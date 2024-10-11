@@ -1,1 +1,0 @@
-[Telegram Blum](https://t.me/BlumCryptoBot/app?startapp=ref_ZaPCLmyAt5)
